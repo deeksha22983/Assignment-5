@@ -1,4 +1,4 @@
-**Name: Deeksha Sharmaj**\
+**Name: Deeksha Sharma**\
 **Reg No: 23BCG10065**\
 **Application no: IN26011323**\
 **Batch Number: 1(A)**\
